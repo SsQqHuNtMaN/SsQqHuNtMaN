@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Struggling to embrace myself. So much time has been wasted, and then I hope to create something out of the ordinary to fill the void of my heart.
+
 <!--
 **SsQqHuNtMaN/SsQqHuNtMaN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
